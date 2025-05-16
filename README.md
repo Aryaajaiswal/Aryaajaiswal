@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Aryaajaiswal
+- 👋 Hi, I’m @Aryaajaiswaal
 - 👀 I’m interested in AI/ML, chatbots, Elon Musk, tech stack and manyy more interesting topics.
 - 🌱 I’m currently learning ML
 - 💞️ I’m looking to collaborate on tech projects which give me deep insights on various technologiesw especially AI.
